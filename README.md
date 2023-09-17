@@ -1,1 +1,1 @@
-gatfan.github.io
+https://endbean.github.io/gatfan/
